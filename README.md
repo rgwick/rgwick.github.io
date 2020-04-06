@@ -1,2 +1,0 @@
-# rgwick.github.io
-ThePupdate
